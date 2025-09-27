@@ -1,1 +1,1 @@
-# a-da.ko-da.github.io
+# tech
